@@ -10,3 +10,6 @@ Utilizo esse espaço para a minha organização e compartilhamento dos meus proj
 
 @vitoriagdantas614@gmail.com
 
+
+
+![](https://media1.tenor.com/m/1Z_kaktg2tgAAAAC/anna-excited.gif)
